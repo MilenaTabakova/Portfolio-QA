@@ -1,4 +1,4 @@
-![foto](https://ibb.co/Xxt2pq1)
+![foto](https://i.ibb.co/d4DW6RF/1.jpg)
 
 # Milena Tabakova
 
